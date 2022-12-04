@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @7evenX69
+- 👀 I’m interested in coding and learning new things 
+- 🌱 I’m currently learning coding 
+- 📫 How to reach me on my account 
